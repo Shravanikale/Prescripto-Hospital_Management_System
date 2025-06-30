@@ -16,7 +16,6 @@
 
 ![Homepage Preview](https://drive.google.com/uc?export=view&id=1ms8TDmZu-t9s0aBjPML5quK0NMZ4ebgY)
 
-> *(Click the image above if it doesn’t render — or view [on Google Drive](https://drive.google.com/file/d/1ms8TDmZu-t9s0aBjPML5quK0NMZ4ebgY/view?usp=sharing))*
 
 ---
 
